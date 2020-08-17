@@ -1,5 +1,13 @@
 ### Hi there, I'm C-Walk Sanju - Beginner
 
+## MY Motivation Quote
+
+- A Mans Character IS Not judged After HE Celebtrates A Victory 
+- So No Matter How Great The Setback No Matter How Severe The Failure You Never Give Up!
+
+## Never Ever Give Up
+
+
 ## I'm a Developer, photographer, Learner, and Gamer!
 
 - 🔭 I’m currently working on a [Something Big][website]!
